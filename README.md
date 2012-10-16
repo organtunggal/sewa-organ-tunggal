@@ -1,0 +1,4 @@
+sewa-organ-tunggal
+==================
+
+Anda butuh sound system dan hiburan musik untuk acara Anda? Kami menyewakan peralatan Sound System, Alat Musik Band, DJ dan Equipmen, sewa piano, ligting, tenda, panggung, pelaminan dan menyediakan Paket Hiburan seperti: Sewa/Rental Organ Tunggal, Band TOP 40, Akustik, Chambers, Solo Piano, MC, DJ, SPG, Dancer, Model, Badut, MARAWIS, Sulap,TAROT untuk acara pernikahan, perusahaan/kantor, launching produk perusahaan, seminar, ulang tahun, gathering maupun untuk acara Anda lainnya.  Salam kami,  THREE S ENTERTAINMENT  www.3s-ent.com  / www.soundsystemjakarta PT Nuansa Abadi  021- 95611136  08161937670 ( Donald Giri )
